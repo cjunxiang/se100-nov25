@@ -1,2 +1,2 @@
 # se100-nov25
-i am learning hahahahh
+i am learning
